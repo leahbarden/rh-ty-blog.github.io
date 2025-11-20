@@ -48,6 +48,10 @@
 2. Bash coding
 3. All different jobs
 
+***My Favourite Part of the Day***
+My favourite part of the day was 
+
+
 
 
 
